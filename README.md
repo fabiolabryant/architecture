@@ -6,7 +6,7 @@ In Germany, you can find quite a few towns that have preserved their authentic a
 
 ![Image](fabiolabryant1.jpg)
 
-- he city of Monschau is located in western Germany, just outside the border with Belgium. The area there is picturesque: in the gorge of the foothills by the flow of the river Ruhr was formed a small peninsula - and it is on it and is located this unique settlement. The river flows literally everywhere: that is, not only between the streets, but the houses themselves are literally washed by the waters of the Ruhr.
+- The city of Monschau is located in western Germany, just outside the border with Belgium. The area there is picturesque: in the gorge of the foothills by the flow of the river Ruhr was formed a small peninsula - and it is on it and is located this unique settlement. The river flows literally everywhere: that is, not only between the streets, but the houses themselves are literally washed by the waters of the Ruhr.
 
 In addition, the small area is the reason that the streets in Monchau are quite narrow. And the location in the immediate vicinity of the mountains gave the city two more interesting features: first, it seems to be scattered on the hills, and secondly, no matter how many walks through the streets, it seems that they all lead somewhere upwards.
 
